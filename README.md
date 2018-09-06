@@ -1,3 +1,3 @@
 # HTML
 
-Pierwsza lekcja
+Zajęcia organizacyjne
